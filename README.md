@@ -27,7 +27,7 @@
 - [瓜老师の鉴赏课.写真](https://photo.gua.lol) (需要翻墙)
 - [瓜老师の选修课](https://da1g1cuqdemgq.cloudfront.net/)[APP推荐广告]
 - [求瓜](https://data.xso.lol/)（吃瓜求瓜，有求必应）
-- 
+
 您可以直接点击上方的地址进行浏览，或复制到浏览器进行访问。感谢您的支持！
 
 ## 投稿方式
