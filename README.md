@@ -2,8 +2,7 @@
 
 欢迎使用 瓜老师の笔记，我们为您提供高质量的在线资源和体验。以下是我们的线路和相关信息：
 ## 瓜老师の笔记最新线路🔥🔥
-- 线路地址：https://ddju1cpq6sc12.cloudfront.net
-  
+- https://d185mgt9yc1iie.cloudfront.net/
 ## 普通用户私有线路
 - 线路地址：https://dsz1281nxrnga.cloudfront.net
 - 口令：gualaoshinb
